@@ -18,3 +18,18 @@ Opciones sin azúcar: Para aquellos con restricciones dietéticas, también ofre
 ___________________________________________________
 
 Estamos dedicados a brindar una experiencia dulce y satisfactoria a un amplio espectro de clientes apasionados por los dulces y los chocolates.
+
+
+
+----------------------- REFERENCIAS ------------------------
+
+• Por estética
+https://www.behance.net/gallery/86004319/Candy-Shop-Website-UIUX
+https://www.behance.net/gallery/172885513/Mousse-Logo-and-branding-for-a-candy-shop?tracking_source=search_projects%7Ccandy+shop+web
+
+• Funcionalidades
+https://www.vkhome.com.ar/?gclid=CjwKCAjwvrOpBhBdEiwAR58-3EbJ5Pghj1CFiUWhZxaHyngPsEDZmFyYK_hLD7od91twco7PVGmrwxoCzPUQAvD_BwE
+https://spanish.alibaba.com/?spm=a27aq.cp_201275273.scGlobalHomeHeader.7.29d8587165gg17
+
+• Productos
+https://www.candywarehouse.com/
