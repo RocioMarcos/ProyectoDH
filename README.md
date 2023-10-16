@@ -13,3 +13,8 @@ Regalos personalizados: Creamos regalos de dulces personalizados para ocasiones 
 Dulces internacionales: Ofrecemos una selección de dulces y chocolates de todo el mundo, permitiéndote explorar sabores internacionales.
 
 Opciones sin azúcar: Para aquellos con restricciones dietéticas, también ofrecemos una selección de golosinas sin azúcar.
+
+
+___________________________________________________
+
+Estamos dedicados a brindar una experiencia dulce y satisfactoria a un amplio espectro de clientes apasionados por los dulces y los chocolates.
