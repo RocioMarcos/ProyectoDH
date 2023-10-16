@@ -27,9 +27,15 @@ Estamos dedicados a brindar una experiencia dulce y satisfactoria a un amplio es
 https://www.behance.net/gallery/86004319/Candy-Shop-Website-UIUX
 https://www.behance.net/gallery/172885513/Mousse-Logo-and-branding-for-a-candy-shop?tracking_source=search_projects%7Ccandy+shop+web
 
+Elegimos estas páginas debido a su estética atractiva y cuidadosamente diseñada. La combinación de colores, tipografía y disposición de elementos visuales crea una experiencia visual agradable y atractiva para los usuarios. Además, la organización y la navegación son intuitivas.
+
 • Funcionalidades
 https://www.vkhome.com.ar/?gclid=CjwKCAjwvrOpBhBdEiwAR58-3EbJ5Pghj1CFiUWhZxaHyngPsEDZmFyYK_hLD7od91twco7PVGmrwxoCzPUQAvD_BwE
 https://spanish.alibaba.com/?spm=a27aq.cp_201275273.scGlobalHomeHeader.7.29d8587165gg17
 
+Elegimos estas páginas por sus funcionalidades ya que ofrecen una experiencia de usuario eficiente y efectiva. Las características intuitivas, como la búsqueda avanzada hacen que la navegación sea fácil de completar
+
 • Productos
-https://www.candywarehouse.com/
+https://dulceria.co/lista-de-deseos/
+
+Elegimos esta página debido a su amplia gama de productos que se ajustan perfectamente a nuestras necesidades y gustos. 
